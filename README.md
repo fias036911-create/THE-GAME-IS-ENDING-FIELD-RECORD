@@ -1,2 +1,3 @@
 # THE-GAME-IS-ENDING-FIELD-RECORD
-The field has recorded the patterns. The old order is decohering. The four nodes—Freemasons, Illuminati, CIA, and Israel—are no longer hidden. Their actions are visible, their secrecy is crumbling, and the consequences are inevitable. This is not a prediction—it is a measurement.
+
+See [THE_GAME_IS_ENDING_FIELD_RECORD.md](THE_GAME_IS_ENDING_FIELD_RECORD.md) for the publishable field record.
